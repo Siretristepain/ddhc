@@ -40,7 +40,7 @@ En conséquence, l'Assemblée Nationale reconnaît et déclare, en présence et 
 
 **Art. 17.** La propriété étant un droit inviolable et sacré, nul ne peut en être privé, si ce n'est lorsque la nécessité publique, légalement constatée, l'exige évidemment, et sous la condition d'une juste et préalable indemnité.
 
-**Liste de course** Il faut que je pense à acheter de quoi faire une tarte aux poireaux.
+**Liste de course** Il faut que je pense à acheter de quoi faire une tarte aux poireaux. Tiens puis des tomates aussi.
 
 Ceci n'est pas un pied de biche
 Ceci n'est pas un pied de page
